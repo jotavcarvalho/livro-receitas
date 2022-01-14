@@ -3,4 +3,4 @@
 Eae Paizão ou Paizona !  Seja bem vindo ao meu livro de receitas ! :wave:
 
 - Batatinha Frita 
-- purê
+- pureziho 
